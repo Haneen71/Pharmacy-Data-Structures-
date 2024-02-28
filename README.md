@@ -14,4 +14,4 @@ Haneen Almalki
 Sarah Alawfi
 Sarah Alfaifi
 Dana Alramadhani
-Tala eaqil
+Tala Aqeel
